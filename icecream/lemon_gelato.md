@@ -3,7 +3,7 @@
 ## Ingredients
 
 * 1 cup Water
-* 220g caster sugart
+* 220g caster sugar
 * 1/3 cup lemon zest
 * 2/3 cup fresh lemon juice
 * 2/3 cup thickened cream 
