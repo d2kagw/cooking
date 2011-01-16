@@ -1,5 +1,9 @@
 # Chocolate & Berry Gelato
 
+**Warning:** this ice cream is devine. Be sure you don't eat the chilled batter! I couldn't stop myself!
+
+**Note:** if you added an extra table spoon of cornflower, you'd have a nice chilled pudding.
+
 ## Ingredients
 
 * 3 cups full cream milk (or high quality Soy milk)
