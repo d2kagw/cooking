@@ -1,5 +1,8 @@
 # Basic Vanilla Ice Cream
 
+This recipe results in an incredibly creamy dessert.
+Far too creamy for my liking, but my folks loved it, so I thought I'd share it.
+
 ## Ingredients
 
 * 4 egg yolks
