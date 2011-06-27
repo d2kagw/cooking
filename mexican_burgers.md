@@ -2,6 +2,9 @@
 
 These patties have a bite, and go really well with avocado, salsa and sour cream.
 
+The recipe will make four small patties - each one big enough to go into a sandwich.
+I'd recommend doubling it if you're making burgers.
+
 ## Ingredients
 
 * 2 cans of beans (Kidney beans if Black Beans can't be found)
