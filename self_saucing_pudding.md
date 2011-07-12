@@ -2,16 +2,16 @@
 
 ## Ingredients
 
-* 1 tin of Pears in Juice
-* 125g plain flour
-* 125g caster sugar
-* 25g cocoa
-* 1tsp baking powder
-* 1/4tsp bi-carb
-* 150g soft unsalted butter
-* 2tsp vanilla extract
-* 2tsp Cointreau
-* 2 eggs
+1 tin of Pears in Juice
+125g plain flour
+125g caster sugar
+25g cocoa
+1tsp baking powder
+1/4tsp bi-carb
+150g soft unsalted butter
+2tsp vanilla extract
+2tsp Cointreau
+2 eggs
 
 ## Method
 * Blend together everything but the pears, add more booze and chocolate for taste
