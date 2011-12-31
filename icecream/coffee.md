@@ -1,6 +1,8 @@
 # Coffee Ice Cream
 
 Need a kick!?
+This thing has some serious balls.
+(I think it's the best ice cream I've made so far too)
 
 ## Ingredients (makes a little over 1L)
 
